@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @changReo
 - 👀 I’m interested in computer
 - 🌱 I’m currently learning computer
-- 😃 send me now ！
+- 😃 call  me now ！
 
 <!---
 changReo/changReo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
